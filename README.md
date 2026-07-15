@@ -1,2 +1,2 @@
 # market-analysis
-Market research, technical analysis, and trading ideas.
+Market research, technical analysis, and trading Ideals💡 
